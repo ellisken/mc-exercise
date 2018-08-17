@@ -7,3 +7,4 @@ Can I jump higher than a house? Of course I can, because houses can't jump.
 
 * This is a second sentence coming from Ted and Alice.
 * What did the green grape say to the purple one?  Breathe, stupid!
+* Yo mama so dumb when I said it was chilly outside, she went and got a bowl!
