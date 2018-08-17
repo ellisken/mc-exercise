@@ -4,3 +4,4 @@
 
 * This is a second sentence coming from Ted and Alice.
 * What did the green grape say to the purple one?  Breathe, stupid!
+*  Did you hear about the restaurant on the moon? Great food, no atmosphere.
